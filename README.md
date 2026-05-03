@@ -12,8 +12,13 @@
 <br> 
 </br>
 
-### Whatever name you use, I'll answer
-My name is Casey or Cassidy but I don't mind if people use anything else they think suits me. I go by he/him pronouns; much like names, I don't mind if people use any pronouns for me.
+## "Call me however you like. I'll always be by your side." 
+My name is Casey or Cassidy but I don't mind if people use anything else they think suits me. 
+I go by he/him pronouns; much like names, I don't mind if people use any pronouns for me. 
+
+I am a system. Please, keep that in mind while talking to me. If I act "off" or "different", it's probably not your fault.
+
+<img src="https://i.postimg.cc/gjygcCm8/IMG-9396.png"/>
 
 <details>
 
@@ -35,7 +40,8 @@ That said, my current interests do include Undertale AUs. I love Evangelion and 
 
 If you try to interact with me, please, do it via whispers. Unless you see me being active and texting in public chat, I am most likely doing other things off-tab.
 
-Don't be afraid to come up to me. I love talking to people, especially if we're in the same fandom. On the same note, I'll hardly ever begin interaction if I don't know you because I'll be afraid to distrurb you (trust me, I probably do want to interact with you).
+Don't be afraid to come up to me, especially if we're in the same fandom. While I'm not a big talker at the start, I do love meeting people who share the same interests as me.
+On the same note, I'll hardly ever begin an interaction if I don't know you because I'll be afraid to distrurb you.
 
 
 </details>
