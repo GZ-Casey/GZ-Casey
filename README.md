@@ -3,8 +3,12 @@
 <div align="center">
 
 <img src="https://64.media.tumblr.com/89a03f175d21962e837d8ad8889848b9/935a4cab09c9532b-38/s2048x3072/707cd9c784f61c5aacda5024b2e4cffea666cde3.pnj"/>
+
+"God's in his heaven."
+ 
 <img alt="moon-png-no-background-15 1" src="https://github.com/user-attachments/assets/04567e58-ad5a-4303-9aed-79d8a54ac704" />
 
+"All's right with the world."
 
 
 <br> 
