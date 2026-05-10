@@ -29,7 +29,7 @@ I wouldn't consider myself a "shipper". I don't enjoy talking or listening to ot
 I do consider myself a "hater". I dislike headcanons. I dislike overpowered OCs. I dislike extreme self-shippers. I "police" joy and wimsy in exchange of structure and rules. This doesn't mean I will attack you if you like or partake in those things. I will keep to myself when the topic arises. I will simply not engage.  
 HOWEVER, I adore Alternative Universes. It might sound hypocritical but that is one of the rules I follow. If the "headcanon" is apllied in an Alternative Universe? I won't have anything against it. 
 
-That said, my current interests do include Undertale AUs. I love Evangelion and Resident Evil. I really like Danganronpa and Madoka Magica.
+That said, my current interests do include Undertale AUs. I love Evangelion and Resident Evil. I really like Danganronpa, Serial Experiments Lain, and Madoka Magica.
 
 
 </details>
