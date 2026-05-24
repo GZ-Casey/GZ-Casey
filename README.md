@@ -16,8 +16,6 @@
 My name is Casey or Cassidy but I don't mind if people use anything else they think suits me. 
 I go by he/him pronouns; much like names, I don't mind if people use any pronouns for me. 
 
-I am a system. Please, keep that in mind while talking to me. If I act "off" or "different", it's probably not your fault.
-
 <img src="https://i.postimg.cc/gjygcCm8/IMG-9396.png"/>
 
 <details>
